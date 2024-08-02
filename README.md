@@ -1,1 +1,1 @@
-# reposit-rio-de-bruna
+# repositório-de-bruna
